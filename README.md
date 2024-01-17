@@ -1,4 +1,6 @@
 1. https://batdongsan.com.vn/ban-dat-duong-la-noi-phuong-duong-noi/hiem-ban-gap-10m-ra-pho-oto-tai-tranh-40m2-mt-6m-chi-2-05-ty-pr38552464
+Đt: 0977164491 
+<img width="526" alt="image" src="https://github.com/HectorTa1989/BDS_VN/assets/31132150/8d20a604-2708-4e23-8110-69e8a5e7e4a3">
 
 2. https://batdongsan.com.vn/ban-dat-duong-la-noi-phuong-duong-noi/chinh-chu-can-ban-gap-manh-tho-cu-pr35129786
 3. https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-nguyen-hoang-ton-phuong-phu-thuong-1-prj-d-el-dorado/ban-goc-2pn-69m-del-du-do-lien-tuong-cc-nhan-nha-ngay-so-huu-lau-dai-pr38800687
