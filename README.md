@@ -43,4 +43,8 @@ HUD3 60 Nguyễn Đức Cảnh, Hoàng Mai
 2. https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-nguyen-duc-canh-phuong-tuong-mai-prj-hud3-nguyen-duc-canh/chinh-chu-ban-96m2-noi-that-dep-ban-cong-dong-nam-mat-tang-4-gia-3-7-ty-lh-pr38984386
 --------
 120 T&T
-0965425368 https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-dinh-cong-phuong-dinh-cong-prj-t-t-tower/-ban-cc-440-vinh-hung-99-9m-2pn-du-do-so-chinh-chu-pr38935232
+
+1. 0965425368 https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-dinh-cong-phuong-dinh-cong-prj-t-t-tower/-ban-cc-440-vinh-hung-99-9m-2pn-du-do-so-chinh-chu-pr38935232
+----------
+Chung cư ở Kim Đồng, Hoàng Mai 12tr/m2
+1. https://homedy.com/ban-can-ho-quan-hoang-mai-ha-noi/mo-chung-cu-kim-dong-du-that-ve-o-ngay-gia-tu-550-trieu-es1262648
