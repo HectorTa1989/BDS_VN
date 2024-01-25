@@ -17,6 +17,7 @@ Lê Thị Nhàn: 0902282782
 2. https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-le-huu-trac-phuong-duong-noi-prj-khu-do-thi-moi-duong-noi/ban-nhanh-ha-ng-dien-tich-84m2-nha-dep-gia-2-ty-pr37931724
 ------------------
 https://www.otofun.net/threads/nen-chon-chung-cu-nao-cho-ngan-sach-duoi-3-ty-tai-hoang-mai.1876007/
+
 Nhà ở Tân Mai, Hoàng Mai
 1. https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-tan-mai-phuong-tan-mai-2/phai-that-nhanh-ban-nha-tap-the-80m2-duplex-2-g-noi-that-cao-cap-gia-1-88-ty-pr39043033
 2. https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-tan-mai-phuong-tan-mai-2/1-ty-nhinh-co-nha-vi-tri-dep-nha-gan-ngay-cho-cong-nang-tien-ich-khong-thieu-thu-gi-pr39051350
