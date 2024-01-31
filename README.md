@@ -25,6 +25,7 @@ Nhà ở Tân Mai, Hoàng Mai
 -------------------
 Geleximco 897GP - Giáp Bát, Hoàng Mai
 1. https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-giai-phong-phuong-giap-bat-prj-geleximco-southern-star/-ban-truoc-tet-gia-nao-cung-ban-cat-lo-3pn-du-an-vi-tien-pr38837147
+2. https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-giai-phong-phuong-giap-bat-prj-geleximco-southern-star/-ban-nhanh-2-so-huu-lau-dai-62m2-92-7m2-o-souther-897-png-pr37882680
 -----------
 Nam Đô Complex Trương Định
 1. Gọi cho Tuân 0934611663 https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-truong-dinh-phuong-giap-bat-prj-nam-do-complex-609-truong-dinh/toi-ban-tang-15-93m2-3pn-2wc-3-6-ty-tl-pr38436802
