@@ -1,6 +1,7 @@
 Times City
-1. https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-minh-khai-phuong-vinh-tuy-prj-vinhomes-times-city-park-hill/chuyen-mua-ban-cac-tai-khu-do-thi-vinmes-hiil-lh-0898-899-869-pr28434162
-2. https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-minh-khai-phuong-vinh-tuy-prj-times-city/gia-sieu-tot-ban-2-ngu-dt-83-m2-gia-4-ty-lh-0979702442-pr35776666
+1. https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-minh-khai-phuong-vinh-tuy-prj-times-city/-ban-hoa-hau-dien-tich-86m-2-phong-sang-pr38992753
+2. https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-minh-khai-phuong-vinh-tuy-prj-vinhomes-times-city-park-hill/chuyen-mua-ban-cac-tai-khu-do-thi-vinmes-hiil-lh-0898-899-869-pr28434162
+3. https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-minh-khai-phuong-vinh-tuy-prj-times-city/gia-sieu-tot-ban-2-ngu-dt-83-m2-gia-4-ty-lh-0979702442-pr35776666
 -------------
 
 1. https://batdongsan.com.vn/ban-dat-duong-la-noi-phuong-duong-noi/hiem-ban-gap-10m-ra-pho-oto-tai-tranh-40m2-mt-6m-chi-2-05-ty-pr38552464
