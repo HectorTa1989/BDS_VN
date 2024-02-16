@@ -1,6 +1,6 @@
 Times City
 1. https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-minh-khai-phuong-vinh-tuy-prj-times-city/-ban-hoa-hau-dien-tich-86m-2-phong-sang-pr38992753
-3. Phòng áp mái, tòa T đã xây xong 10 năm. https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-minh-khai-phuong-vinh-tuy-prj-times-city/gia-sieu-tot-ban-2-ngu-dt-83-m2-gia-4-ty-lh-0979702442-pr35776666
+3. Phòng áp mái, 3.8 tỷ, hướng Bắc, tòa T đã xây xong 10 năm. https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-minh-khai-phuong-vinh-tuy-prj-times-city/gia-sieu-tot-ban-2-ngu-dt-83-m2-gia-4-ty-lh-0979702442-pr35776666
 
  **Hoàng Quốc Việt**
 1) 2,03 tỷ https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-hoang-quoc-viet-phuong-nghia-tan-3/co-102-ban-tap-the-khu-ang-sat-p-o-to-moi-dep-re-100m-3pn-nhinh-2-ty-pr39099556
