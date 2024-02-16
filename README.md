@@ -3,22 +3,22 @@ Times City
 3. Phòng áp mái, 3.8 tỷ, hướng Bắc, tòa T đã xây xong 10 năm. https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-minh-khai-phuong-vinh-tuy-prj-times-city/gia-sieu-tot-ban-2-ngu-dt-83-m2-gia-4-ty-lh-0979702442-pr35776666
 
  **Hoàng Quốc Việt**
-1) 2,03 tỷ https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-hoang-quoc-viet-phuong-nghia-tan-3/co-102-ban-tap-the-khu-ang-sat-p-o-to-moi-dep-re-100m-3pn-nhinh-2-ty-pr39099556
+- 2,03 tỷ https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-hoang-quoc-viet-phuong-nghia-tan-3/co-102-ban-tap-the-khu-ang-sat-p-o-to-moi-dep-re-100m-3pn-nhinh-2-ty-pr39099556
 
 **Ngọc Khánh**
-1) 2,65 tỷ https://batdongsan.com.vn/ban-nha-rieng-pho-ngoc-khanh-phuong-ngoc-khanh/chinh-chu-ban-ba-dinh-25m2-mt-3-8-ngo-nong-san-de-xe-rong-gia-2-6-ty-pr38861887
+- 2,65 tỷ https://batdongsan.com.vn/ban-nha-rieng-pho-ngoc-khanh-phuong-ngoc-khanh/chinh-chu-ban-ba-dinh-25m2-mt-3-8-ngo-nong-san-de-xe-rong-gia-2-6-ty-pr38861887
 
 **Kim Mã**
-1) 3 tỷ. Nhà đang cho thuê bán đồ ăn 8t/tháng. https://batdongsan.com.vn/ban-nha-rieng-pho-kim-ma-phuong-ngoc-khanh/chinh-chu-ban-gap-o-to-ngo-thong-kinh-doanh-nhinh-3-ty-lh-0989609919-pr37331238
+- 3 tỷ. Nhà đang cho thuê bán đồ ăn 8t/tháng. https://batdongsan.com.vn/ban-nha-rieng-pho-kim-ma-phuong-ngoc-khanh/chinh-chu-ban-gap-o-to-ngo-thong-kinh-doanh-nhinh-3-ty-lh-0989609919-pr37331238
 
 **Hàng Than**
-1) 2,8 tỷ. Cho thuê dễ dàng từ 7 - 10 triệu/tháng. https://batdongsan.com.vn/ban-nha-rieng-pho-nguyen-khac-nhu-phuong-truc-bach/ban-hang-than-ba-dinh-hoan-kiem-30mx4t-2-8-ty-kinh-doanh-dep-o-luon-pr38906309
+- 2,8 tỷ. Cho thuê dễ dàng từ 7 - 10 triệu/tháng. https://batdongsan.com.vn/ban-nha-rieng-pho-nguyen-khac-nhu-phuong-truc-bach/ban-hang-than-ba-dinh-hoan-kiem-30mx4t-2-8-ty-kinh-doanh-dep-o-luon-pr38906309
 
 **Đội Cấn**
-1) 2,9 tỷ https://batdongsan.com.vn/ban-nha-rieng-duong-doi-can-phuong-doi-can/sieu-hiem-ban-pho-10m-ra-mat-pho-ngo-thang-tap-36m-4t-mt-3-3-gia-2-9-ty-pr34917469
+- 2,9 tỷ https://batdongsan.com.vn/ban-nha-rieng-duong-doi-can-phuong-doi-can/sieu-hiem-ban-pho-10m-ra-mat-pho-ngo-thang-tap-36m-4t-mt-3-3-gia-2-9-ty-pr34917469
 
 **Xuân Thủy - Trần Quốc Vượng**
-1) 3 tỷ https://batdongsan.com.vn/ban-nha-rieng-duong-tran-quoc-vuong-phuong-dich-vong-hau/ban-cap-4-pho-xuan-thuy-35m2-mat-tien-4m-3-ty-gan-pho-ngo-rong-pr38885034
+- 3 tỷ https://batdongsan.com.vn/ban-nha-rieng-duong-tran-quoc-vuong-phuong-dich-vong-hau/ban-cap-4-pho-xuan-thuy-35m2-mat-tien-4m-3-ty-gan-pho-ngo-rong-pr38885034
 -------------
 
 1. https://batdongsan.com.vn/ban-dat-duong-la-noi-phuong-duong-noi/hiem-ban-gap-10m-ra-pho-oto-tai-tranh-40m2-mt-6m-chi-2-05-ty-pr38552464
