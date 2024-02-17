@@ -2,6 +2,17 @@ Times City
 1. https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-minh-khai-phuong-vinh-tuy-prj-times-city/-ban-hoa-hau-dien-tich-86m-2-phong-sang-pr38992753
 3. Phòng áp mái, 3.8 tỷ, hướng Bắc, tòa T đã xây xong 10 năm. https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-minh-khai-phuong-vinh-tuy-prj-times-city/gia-sieu-tot-ban-2-ngu-dt-83-m2-gia-4-ty-lh-0979702442-pr35776666
 
+**Gần Chùa Láng**
+- 4.58 tỷ. Cho thuê 40 tr/tháng. https://batdongsan.com.vn/ban-nha-rieng-pho-chua-lang-phuong-lang-thuong/ban-kd-cho-thue-dong-da-50m2-doanh-thu-gan-500-tr-nam-n-pccc-gia-chi-4-9-ty-pr38949576
+- 4 tỷ. https://batdongsan.com.vn/ban-nha-rieng-pho-chua-lang-phuong-lang-thuong/chinh-chu-ban-47m2-4-tang-mat-tien-3-8m-gia-4-ty-lh-mien-mua-gioi-pr38266496
+
+**Nguyễn Văn Huyên**
+- 4.2 tỷ, 48m2. https://batdongsan.com.vn/ban-nha-rieng-duong-nguyen-van-huyen-phuong-quan-hoa/chinh-chu-ban-gap-ngo-3-48m2-2-thoang-rong-thoang-gia-4-2-ty-pr38943741
+
+**Nguyễn Khánh Toàn**
+- 4.1 tỷ. https://batdongsan.com.vn/ban-nha-rieng-duong-nguyen-khanh-toan-phuong-nghia-do-1/-ngo-nong-thong-thoang-gan-pho-ngo-o-to-sieu-re-40m-4-1-ty-pr38978148
+- 3.8 tỷ. https://batdongsan.com.vn/ban-nha-rieng-duong-nguyen-khanh-toan-phuong-dich-vong/re-bat-ngo-trung-tam-cau-giay-ngo-rong-cuc-thoang-o-cho-thue-45m2-4t-pr39008061
+
  **Hoàng Quốc Việt**
 - 2,03 tỷ https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-hoang-quoc-viet-phuong-nghia-tan-3/co-102-ban-tap-the-khu-ang-sat-p-o-to-moi-dep-re-100m-3pn-nhinh-2-ty-pr39099556
 
@@ -19,6 +30,10 @@ Times City
 
 **Xuân Thủy - Trần Quốc Vượng**
 - 3 tỷ https://batdongsan.com.vn/ban-nha-rieng-duong-tran-quoc-vuong-phuong-dich-vong-hau/ban-cap-4-pho-xuan-thuy-35m2-mat-tien-4m-3-ty-gan-pho-ngo-rong-pr38885034
+
+**Hoàng Mai**
+- 2.35 tỷ. https://batdongsan.com.vn/ban-nha-rieng-duong-linh-nam-phuong-linh-nam/2-35-ty-30m-x-4-tang-tang-full-noi-that-truoc-rong-3m-pr39105992
+- 2.65 tỷ. https://batdongsan.com.vn/ban-nha-rieng-duong-nguyen-chinh-phuong-tan-mai-2/ban-hoang-noi-that-dep-o-to-do-gan-2-mat-thoang-dt-37m-mt-4m-gia-2-9-ty-pr39000017
 -------------
 
 1. https://batdongsan.com.vn/ban-dat-duong-la-noi-phuong-duong-noi/hiem-ban-gap-10m-ra-pho-oto-tai-tranh-40m2-mt-6m-chi-2-05-ty-pr38552464
