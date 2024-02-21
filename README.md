@@ -32,8 +32,15 @@ Times City
 - 3 tỷ https://batdongsan.com.vn/ban-nha-rieng-duong-tran-quoc-vuong-phuong-dich-vong-hau/ban-cap-4-pho-xuan-thuy-35m2-mat-tien-4m-3-ty-gan-pho-ngo-rong-pr38885034
 
 **Hoàng Mai**
+- https://batdongsan.com.vn/ban-can-ho-chung-cu-duong-tan-mai-phuong-giap-bat/toi-ban-den-tu-gan-kim-dong-tu-590tr-vao-o-luon-pr25771461
 - 2.35 tỷ. https://batdongsan.com.vn/ban-nha-rieng-duong-linh-nam-phuong-linh-nam/2-35-ty-30m-x-4-tang-tang-full-noi-that-truoc-rong-3m-pr39105992
 - 2.65 tỷ. https://batdongsan.com.vn/ban-nha-rieng-duong-nguyen-chinh-phuong-tan-mai-2/ban-hoang-noi-that-dep-o-to-do-gan-2-mat-thoang-dt-37m-mt-4m-gia-2-9-ty-pr39000017
+
+**Hào Nam**
+- 1.4 tỷ. https://batdongsan.com.vn/ban-can-ho-chung-cu-pho-hao-nam-phuong-o-cho-dua/chinh-chu-ban-dng-da-mat-2-t-tranh-nhau-gia-tu-hn-1-ty-pr39122061
+
+**Hoàng Cầu**
+- 650tr. https://batdongsan.com.vn/ban-can-ho-chung-cu-phuong-o-cho-dua/-ban-gap-mini-hoang-cau-dong-da-gia-re-moi-xay-35-55m2-so-hong-rieng-pr38988051
 -------------
 
 1. https://batdongsan.com.vn/ban-dat-duong-la-noi-phuong-duong-noi/hiem-ban-gap-10m-ra-pho-oto-tai-tranh-40m2-mt-6m-chi-2-05-ty-pr38552464
